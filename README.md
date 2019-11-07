@@ -1,0 +1,1 @@
+# PBO1-10118014-Latihan50-EnergiKinetik
